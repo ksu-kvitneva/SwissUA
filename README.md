@@ -247,6 +247,7 @@ Mercredi (reservé pour les enfants): 11h00-13h00 / 14h00-18h
 - https://ethz.ch/services/en/news-and-events/solidarity-with-ukraine.html: *"As part of its emergency aid programme, ETH Zurich is providing refugees from Ukraine with uncomplicated and rapid admission as auditors. This includes attendance of courses, access to ETH IT infrastructure, etc."*
 - https://www.unifr.ch/home/en/solidarity-ukraine/: *"BA, MA and PhD students may come to Unifr as host students. Study fees are waived."*
 - https://www.unibas.ch/de/Aktuell/Ukraine.html: Пропозиція Університету Базель на основі програми обміну студентів Gaststudent
+- https://www.unibe.ch/studies/mobility/incoming/ukraine/index_eng.html: Пропозиція Університету Берна на основі програми обміну студентів.
 
 
 
